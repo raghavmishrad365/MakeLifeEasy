@@ -23,5 +23,6 @@ Enhancing the Daily Lives of Autistic Children and Their Parents
 Inclusivity and User Involvement:
 
 Ensuring Relevance through User Input
+
 [Make Life Easy.pdf](https://github.com/raghavmishrad365/MakeLifeEasy/files/13272272/Make.Life.Easy.pdf)
 
